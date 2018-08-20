@@ -1,0 +1,3 @@
+# DYKTW
+discord
+Konnichiwa
